@@ -1,0 +1,2 @@
+# Pertemuan10_A2_DefasyaZulsyifahKanna
+Pertemuan10_A2_DefasyaZulsyifahKanna
